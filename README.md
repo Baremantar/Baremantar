@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Baremantar
-- 💞️ I’m looking to collaborate on young team with great ideas
 - 📫 How to reach me - baremantar@gmail.com
 
 <!---
